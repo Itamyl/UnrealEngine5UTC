@@ -33,6 +33,10 @@
 
 
 If you ask something 
-Discord Itamyl
+Discord Itamyl  
+
 Mail burakcanadalan@gmail.com
+
+
+
 Linkedin https://www.linkedin.com/in/burak-can-adalan-176287320/
