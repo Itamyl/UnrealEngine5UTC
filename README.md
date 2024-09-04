@@ -28,7 +28,11 @@
 ![ms](https://github.com/user-attachments/assets/9ab3dc84-ca16-414e-b292-486db72158bf)
 **UTC now >> Get minute >>**
 
+# Last go to event graph
+![last](https://github.com/user-attachments/assets/a82febaa-5f99-48fe-8ad9-33cb58452969)
+
 
 If you ask something 
 Discord Itamyl
 Mail burakcanadalan@gmail.com
+Linkedin https://www.linkedin.com/in/burak-can-adalan-176287320/
