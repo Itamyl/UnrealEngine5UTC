@@ -1,7 +1,7 @@
 # Wellcome! 
 ## Add your country's time to your game!
 
-!! Includes Stamina and Health system
+!! Includes Stamina and Health system !! 
 
 # In game
 ![fristhssss](https://github.com/user-attachments/assets/be0dbb60-ecca-4041-89f9-e2e9ee9df6b3)
